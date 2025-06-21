@@ -69,6 +69,7 @@ B.E. Computer Science & Engineering
 KCG College of Technology  
 **Intern @ SystemTron – Generative AI Internship**  
 🔗 [LinkedIn]https://www.linkedin.com/in/sangamithra-d-8a4092301?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+[LinkedIn Post]https://www.linkedin.com/posts/sangamithra-d-8a4092301_eda-generativeai-systemtron-activity-7337015936350048258-Xpik?utm_source=share&utm_medium=member_android&rcm=ACoAAE0Te3wBDPpSmrzX8PUb8qeOgFjMumrLltk
 
 ---
 
